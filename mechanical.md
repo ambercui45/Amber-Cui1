@@ -1,1 +1,1 @@
-## Mechanical Webpaeg
+## Mechanical Webpage
